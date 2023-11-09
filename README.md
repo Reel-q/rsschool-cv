@@ -1,1 +1,1 @@
-https://Reel-q.github.io/rsschool-cv/cv
+https://Reel-q.github.io/rsschool-cv/
